@@ -19,8 +19,9 @@
 [Please click on link](https://www.globalanimal.org/2014/06/17/15-surprising-sloth-facts/118906/)
 
 ## References
-1.National Geographic channel [NGC](https://www.nationalgeographic.com/animals/mammals/group/three-toed-sloths/)
-1.Animal Planet [AP](https://www.animalplanet.com/)
+1. National Geographic channel [NGC](https://www.nationalgeographic.com/animals/mammals/group/three-toed-sloths/)
+
+2. Animal Planet [AP](https://www.animalplanet.com/)
 
 ## credits
-- All the images are taken from google.com
+- All the images are taken from [google.com](https://www.google.com)
