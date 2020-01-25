@@ -1,4 +1,4 @@
-
+## Natures slowest animal
 
 ## Sloths found in Central and South America, sloths call the tall trees their home, as their long claws make it difficult for them to walk on the ground.
 
